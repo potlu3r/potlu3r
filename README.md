@@ -2,7 +2,7 @@
 
 **Consultant | Analyst | Tech Enthusiast**<br/>
 **Master’s Student in Information Systems** at Central Michigan University, Michigan, USA<br/>  
-Driven by curiosity and a passion for creating seamless connections between people and technology<br/>
+💡Driven by curiosity and a passion for creating seamless connections between people and technology<br/>
 
 ###  About Me  
 - Exploring **AI in ERP, SaaS, and Business Automation** to build smarter, more efficient systems<br/>
