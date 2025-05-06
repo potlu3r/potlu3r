@@ -1,6 +1,6 @@
 ### Hi, I'm Reshma! 👋  
 
-**Consultant | Analyst | Tech Enthusiast**<br/>
+**Consultant | Analyst**<br/>
 **Master’s Student in Information Systems** at Central Michigan University, Michigan, USA<br/>  
 Driven by curiosity and a passion for creating seamless connections between people and technology<br/>
 
